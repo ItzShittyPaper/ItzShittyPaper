@@ -1,5 +1,3 @@
-# Hi
-Hi.
-Oh and i do stuff.
+# moved on from programming
 
-https://makulaturka.tk
+thank you for all the support
